@@ -4,7 +4,7 @@ Em 1895, dois irmãos franceses, Auguste e Louis Lumière, juntaram cerca de tri
 
 A sessão não durou mais de dez minutos. Eram vídeos simples: trabalhadores a saírem de uma fábrica e um comboio a chegar a uma estação. Conta-se que algumas pessoas assustaram-se tanto que se desviaram nas cadeiras, com medo de serem atropeladas pelo comboio na tela. Na altura, o pai dos irmãos Lumière comentou: «Isto não tem futuro nenhum como negócio». É difícil alguém ter feito uma previsão tão errada na vida.
 
-[](https://canalvideomaker.com.br/wp-content/uploads/2025/09/sala-de-cinema-irmaos-lumiere-reduz.jpg)
+![](https://canalvideomaker.com.br/wp-content/uploads/2025/09/sala-de-cinema-irmaos-lumiere-reduz.jpg)
 
 O cinema não nasceu nos palácios nem nas academias literárias; começou como atração de feira, misturando truques de mecânica com a vontade de gravar o tempo em imagens. Antes deles, o famoso inventor Thomas Edison já tinha criado uma máquina parecida, mas tinha um defeito: só dava para uma pessoa ver de cada vez, espreitando por um buraco numa caixa. Os irmãos Lumière perceberam o segredo: a ilusão precisa da partilha, da cumplicidade da sala escura onde nos sentamos lado a lado com estranhos para sonhar em uníssono.
 
