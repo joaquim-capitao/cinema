@@ -8,7 +8,7 @@ A sessão não durou mais de dez minutos. Eram vídeos simples: trabalhadores a 
 
 Na altura, o pai dos irmãos Lumière comentou: «Isto não tem futuro nenhum como negócio». É difícil alguém ter feito uma previsão tão errada na vida.
 
-Portant, o cinema não nasceu nos palácios nem nas academias literárias; começou como atração de feira, misturando truques de mecânica com a vontade de gravar o tempo em imagens. Antes deles, o famoso inventor Thomas Edison já tinha criado uma máquina parecida, mas tinha um defeito: só dava para uma pessoa ver de cada vez, espreitando por um buraco numa caixa. Os irmãos Lumière perceberam o segredo: a ilusão precisa da partilha, da cumplicidade da sala escura onde nos sentamos lado a lado com estranhos para sonhar em uníssono.
+Portanto, o cinema não nasceu nos palácios nem nas academias literárias; começou como atração de feira, misturando truques de mecânica com a vontade de gravar o tempo em imagens. Antes deles, o famoso inventor Thomas Edison já tinha criado uma máquina parecida, mas tinha um defeito: só dava para uma pessoa ver de cada vez, espreitando por um buraco numa caixa. Os irmãos Lumière perceberam o segredo: a ilusão precisa da partilha, da cumplicidade da sala escura onde nos sentamos lado a lado com estranhos para sonhar em uníssono.
 
 Só que, de início, os irmãos só gravavam o dia a dia. O cinema só virou arte a sério quando um ilusionista chamado Georges Méliès entrou em cena. Ele percebeu que a câmara não servia apenas para filmar a rotina, mas sim para criar ilusões incríveis. Em 1902, filmou *Viagem à Lua*, onde enfiou um foguetão no olho da Lua, inventando os primeiros efeitos especiais e mostrando que o cinema podia dar vida a qualquer fantasia.
 
